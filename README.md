@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @hiilsof
-- 📫 How to reach me @hiilsof on Instagram, Bandcamp and Soundcloud
+- 📫 How to reach me @hiilsof on Instagram
